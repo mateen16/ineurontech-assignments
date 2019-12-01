@@ -1,1 +1,0 @@
-# ineurontech-assignments
